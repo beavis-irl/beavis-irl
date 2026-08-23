@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/g77r9g.png)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Papyrus&pause=1000&color=28D3E1&background=000000&multiline=true&width=435&lines=Exit light, enter night, take my hand… we’re off to never-never land.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Papyrus&pause=1000&color=28D3E1&background=000000&multiline=true&width=435&lines=Exit+light+,+enter+night+,+take+my+hand…+we’re+off+to+never-never+land.)](https://git.io/typing-svg)
 <!--
 **beavis-irl/beavis-irl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
