@@ -1,6 +1,7 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Papyrus&pause=1000&color=28D3E1&background=000000&multiline=true&width=435&lines=Exit+light+,+enter+night+,+take+my+hand…)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Papyrus&pause=1000&color=28D3E1&background=000000&multiline=true&width=435&lines=Exit+light+,+enter+night+,+take+my+hand)](https://git.io/typing-svg)
 
 ![](https://files.catbox.moe/g77r9g.png)
+(ᵃʳᵗ ᶜʳᵉᵈⁱᵗ﹕ ᵖᵉˡˡᵉᶜʳᵉᵉᵖʸ ᵒⁿ ᵗʷⁱᵗᵗᵉʳ)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Papyrus&pause=1000&color=28D3E1&background=000000&multiline=true&width=435&lines=…We’re+off+to+never-never+land.)](https://git.io/typing-svg)
 
