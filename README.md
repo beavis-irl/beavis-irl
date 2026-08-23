@@ -1,4 +1,4 @@
-## Hi there 👋
+![](https://files.catbox.moe/g77r9g.png)
 
 <!--
 **beavis-irl/beavis-irl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
